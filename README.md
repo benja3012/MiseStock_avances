@@ -1,1 +1,0 @@
-# MiseStock_avances
